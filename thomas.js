@@ -1,1 +1,0 @@
-hola mi nombre es thomas y este es mi js
