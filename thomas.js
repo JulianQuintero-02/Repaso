@@ -1,1 +1,0 @@
-hola perdon me gusta mucho los hombres
