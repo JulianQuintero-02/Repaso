@@ -1,1 +1,1 @@
-hola mi nombre es thomas y este es mi js
+hola perdon me gusta mucho los hombres
